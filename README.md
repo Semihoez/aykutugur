@@ -1,2 +1,0 @@
-# aykutugur
-landing page aykut 
